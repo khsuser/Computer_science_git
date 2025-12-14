@@ -2,6 +2,14 @@
 # Name: Kim hyeon seo
 ## I'm student of Computer science & engineering in KNU
 
+## 😊MBTI
+### INTJ
+
+## 🏀What I do for fun
+### Game(LOL or Battle Ground)
+### Play with GPT
+### Read books about history
+
 ## 🎯This year's goal
 ### 1. I want to make my Coding level higher
 ### 2. I want to make my Cash cow for making money
